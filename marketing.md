@@ -3,9 +3,13 @@
 #### INTRODUÇÃO AO CURSO DE MARKETING
 https://www.youtube.com/playlist?list=PL5AmVqr_qTDYzkgWhIfYngQNJjfqkv2Jt
 
-
 #### DESIGN THINKING
+https://www.youtube.com/playlist?list=PL0oT0cUBfhuZuCACSdNjXvsoW8cjEKIzo
+
 #### FUNDAMENTOS DO MARKETING
+(Espanhol) https://www.youtube.com/playlist?list=PLLF5kYvc_Rqd1ctdWE7dfHvRCslFj9zM5
+
+
 #### EDUCAÇÃO A DISTÂNCIA: CONCEITOS E AMBIENTAÇÃO
 #### FORMAÇÃO SOCIOCULTURAL
 #### SUSTENTABILIDADE E RESPONSABILIDADE SOCIAL
