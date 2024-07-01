@@ -25,12 +25,16 @@ https://www.youtube.com/watch?v=emtfheMpOkU&list=PL-QAz5R5Rlm7cFW_3DNEYf94dp69hc
 https://www.youtube.com/watch?v=vqdnQqLgGRo&list=PLHz_AreHm4dmmqFmLT17KMjoaE0Y4LqRv
 
 #### GESTÃO ESTRATÉGICA DE MARKETING
+https://www.youtube.com/watch?v=TropzD1Z_W0&list=PLIIW4N3aCKkSHFTDM14yT7TyOBhvElmH-
+
+
 https://www.youtube.com/watch?v=e1u5zzEPpYM
 https://www.youtube.com/watch?v=Y_Kpew_6J8o
 https://www.youtube.com/watch?v=XjVHBZ1iu00
 https://www.youtube.com/watch?v=vEWpGt2UnOE
 
 #### NEGÓCIOS ELETRÔNICOS
+
 #### CAMPANHA NAS MÍDIAS SOCIAIS
 #### FUNDAMENTOS DA ADMINISTRAÇÃO
 #### EMPREENDEDORISMO
